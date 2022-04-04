@@ -1,2 +1,1 @@
-# words
-sad
+LMAO LANDON JUST GOT THIS SC
